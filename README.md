@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @filoshka
-- 👀 I’m interested in 
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate 
 
